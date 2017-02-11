@@ -2,4 +2,6 @@
 
 Tak. Naprawiłem żonie rower
 
-Teraz by pasowało coś o kontorli wersji poczytać.
+usunąłem to co robię teraz.
+
+Dodałem, że wieczorem będę świętował 60 urodziny taty
