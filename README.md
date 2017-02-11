@@ -1,6 +1,7 @@
 # First
 
-Tak. Naprawiłem żonie rower
+Usunąłęm to, co zrobiłem przed nauką
+
 
 usunąłem to co robię teraz.
 
