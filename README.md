@@ -2,6 +2,7 @@
 
 Usunąłęm to, co zrobiłem przed nauką
 
-Teraz by pasowało coś o kontorli wersji poczytać.
 
-Dodałem, że po nauce naprawię głośnik
+usunąłem to co robię teraz.
+
+Dodałem, że wieczorem będę świętował 60 urodziny taty
