@@ -1,5 +1,4 @@
 # First
-próba
 
 Tak. Naprawiłem żonie rower
 
